@@ -1,6 +1,6 @@
 🍁 Creaco
 
-- 20 years old, electronics and technology fascinates me.
+- 20 years old, electronics and technology fascinate me.
 - I have a lot of experience with anything game-related, I know how to make stuff work.
 
 You can reach out to me at:
